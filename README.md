@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @richelleshim
+- hey! i’m @richelleshim
 - 👀 about me
     - a 2nd year at ucla
     - not born, but raised in socal !
