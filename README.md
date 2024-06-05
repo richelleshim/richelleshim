@@ -19,7 +19,7 @@
 
 - 📫 reach me @ **richelleshim@g.ucla.edu**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:... at a different time! currently on a break from social media!</h3>
 <p align="left">
 </p>
 
