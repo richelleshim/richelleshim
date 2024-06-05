@@ -11,7 +11,6 @@
   
 - 🌱 what i’m trying to do at the moment:
     - **learn computer graphics !!**
-    - **explore different fields**
     - **learn as much as i can**
     - **increase my attention span**
     - **time block!**
