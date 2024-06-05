@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm richelle</h1>
+<h1 align="center"> 👋, it's richelle!</h1>
 <!-- <h3 align="center">a 2nd year at ucla</h3>
  -->
 
