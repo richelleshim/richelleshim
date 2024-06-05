@@ -14,12 +14,12 @@
     - **explore different fields**
     - **learn as much as i can**
     - **increase my attention span**
+    - **time block!**
 
 - 💬 Ask me about **beachside brunches, taco runs**
 
 - 📫 reach me @ **richelleshim@g.ucla.edu**
 
-<h3 align="left">Connect with me:... at a different time! currently on a break from social media!</h3>
 <p align="left">
 </p>
 
