@@ -2,6 +2,8 @@
 <!-- <h3 align="center">a 2nd year at ucla</h3>
  -->
 
+current status: crying in	~~hmart~~ powell
+
 - 👀 about me
     - **i'm a 2nd year at ucla**
     - **not born, but raised in socal !**
