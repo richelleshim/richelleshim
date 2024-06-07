@@ -19,13 +19,6 @@
 
 - 📫 reach me @ **richelleshim@g.ucla.edu**
 
-  most recent life reflection:
-   recently, i realized that i'm doing quite poorly in a course, and i wasn't sure how to process all the emotions that came with it. my mind went a bit like this-
-
-  "do i drop the course? am i going to fail? is my life over? im such a failure. i hate myself. i hate ucla. fuck what's wrong with me. what have i been doing with my life? which cardboard box should i live in now? which bridge provides the most coverage from the rain, because that's where i'll be living after i get my grade back in this course"
-
-
-   but honestly... for lack of better terms, shit's not that deep. yes, i should strive to be the best version of myself. yes, i should reflect on my work ethic. yes, i'm disappointed at myself... but also, failure's a part of life, and that's ok. i can recover, i can do better, and i can always turn life around.
 
 넘어지는걸 무서워하지마!!
 포기하는게 무서운거지, 넘어지는건 괞찬아
