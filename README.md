@@ -1,4 +1,4 @@
-<h1 align="center"> 👋, it's richelle!</h1>
+<h1 align="center"> 💌 it's richelle!💌 </h1>
 <!-- <h3 align="center">a 2nd year at ucla</h3>
  -->
 
@@ -7,6 +7,7 @@
     - **not born, but raised in socal !**
     - **lives loves and laughs everyday**
     - **#1 life romanticizer**
+    - **life's what you make it so let's make it right 😚😚**
 
   
 - 🌱 what i’m trying to do at the moment:
@@ -14,6 +15,7 @@
     - **get better study habits :((**
     - **increase my attention span**
     - **time block!**
+    - **becoming more comfortable with failing and rejection**
 
 - 💬 Ask me about **beachside brunches, taco runs, water fasting!**
 
