@@ -17,15 +17,12 @@ current status: crying in	~~hmart~~ powell
     - **get better study habits :((**
     - **increase my attention span**
     - **time block!**
-    - **becoming more comfortable with failing and rejection**
+    - **becoming more comfortable with failing and academic rejection**
 
 - 💬 Ask me about **beachside brunches, taco runs, water fasting!**
 
 - 📫 reach me @ **richelleshim@g.ucla.edu**
 
-
-넘어지는걸 무서워하지마!!
-포기하는게 무서운거지, 넘어지는건 괞찬아
 
 <p align="left">
 </p>
