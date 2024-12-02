@@ -5,7 +5,7 @@
 current status: crying in	~~hmart~~ powell
 
 - 👀 about me
-    - **i'm a 2nd year at ucla**
+    - **i'm a 3rd year at ucla**
     - **not born, but raised in socal !**
     - **lives loves and laughs everyday**
     - **#1 life romanticizer**
@@ -13,7 +13,7 @@ current status: crying in	~~hmart~~ powell
 
   
 - 🌱 what i’m trying to do at the moment:
-    - **learn computer graphics !!**
+    - **learn quantum computing !!**
     - **get better study habits :((**
     - **increase my attention span**
     - **time block!**
