@@ -12,11 +12,9 @@ current status: crying in	~~hmart~~ powell
 
   
 - 🌱 what i’m trying to do at the moment:
-    - **learn quantum computing !!**
     - **get better study habits :((**
     - **increase my attention span**
     - **time block!**
-    - **becoming more comfortable with failing and academic rejection**
 
 - 💬 Ask me about **beachside brunches, taco runs, water fasting!**
 
