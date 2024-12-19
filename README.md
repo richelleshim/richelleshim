@@ -5,7 +5,6 @@
 current status: crying in	~~hmart~~ powell
 
 - 👀 about me
-    - **i'm a 3rd year at ucla**
     - **not born, but raised in socal !**
     - **lives loves and laughs everyday**
     - **#1 life romanticizer**
