@@ -2,7 +2,7 @@
 <!-- <h3 align="center">a 2nd year at ucla</h3>
  -->
 
-current status: crying in	~~hmart~~ powell
+current status: crying in	~~hmart~~ powell... tweaking
 
 - 👀 about me
     - **not born, but raised in socal !**
